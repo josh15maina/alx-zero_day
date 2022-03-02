@@ -1,1 +1,1 @@
-﻿Dawn of a new era!
+﻿This is going to be fun, Woah!
